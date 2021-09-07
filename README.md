@@ -1,4 +1,4 @@
-### 👋 Hi, I’m @renato-obst and I build awesome teams to work with awesome projects
+### 👋 Hi, I’m @renato-obst and I build awesome teams to work on awesome projects
 
 
 <!---
